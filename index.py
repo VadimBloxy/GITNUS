@@ -1,1 +1,119 @@
 print(10)
+print(rgfrewfcrecvdf42 c4t 42 y4 
+trg
+wt
+ 3t4 
+ g
+ bvbhr
+ br
+  try 42
+  tehh
+  bs45hrjt
+  5v
+  et szs
+   xt
+   3wtve 
+    rwt
+    vyfjgrytdhfv 
+    raiseg t
+    whilec4wev
+    dbnfm
+    yrv
+    cqe
+    vs tsgrfbsvc
+    ds
+    bvs`
+    c
+    as 
+    b
+    varscb
+    nonlocalvc
+    sortednab
+    vcx
+    file=n 5
+    bvds
+    eshjnrtv
+    cg
+    rdf
+    htv
+    sf
+    dhfy
+    jk
+    tryf
+    trytre
+    sep=hf
+    gh
+    breakpointn
+    whilewbvc
+    DeprecationWarningryt
+    jynebse
+    file=hf
+    khfv
+    ggv
+    crtj
+    matchdfsd
+    GeneratorExit,
+    mfghmnfh
+    b
+    FileNotFoundErrornmj
+    h,m
+    FloatingPointErrorx
+    b 
+    gfmu
+    nh
+    n
+    f
+    h
+    mh
+    mg
+    hk
+    fgnc
+    bng
+    m,lg
+    jbkfm
+    gfbd
+    xh
+    tuky
+    uythfg
+    f
+    xd
+    jhfgk
+    iu,mnbw
+    andesrkjet
+    ydfts
+    sd
+    KeyboardInterruptgsrd
+    KeyboardInterrupty
+    srku
+    mjn
+    y7uj
+    y5u6
+    hj
+    yh
+    ,file=tyhry
+    sep=ygf
+    3wdxt
+    
+    j6t
+    enumeratejeyt
+    UnboundLocalErrorhrny
+    jh
+    h
+    hasattrtth
+    exitre
+    jt
+    gfh
+    
+    yr
+    tryyu
+    uy
+    
+    jku
+    tjgh
+    tes
+    y
+    rangehy
+    
+    KeyboardInterruptd
+    h
+    jyr)
