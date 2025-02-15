@@ -1,1 +1,1 @@
-chill guy 2
+print('CHILL GUY 2')
